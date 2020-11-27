@@ -1,1 +1,1 @@
-# Kac-Saniye-Yasad-g-n-Bulan-Kod
+# Kac-Saniye-Yasadigini-Bulan-Kod
